@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-My Name is Jordan McGee
+Hey I'm Deslight!
 
 🔭 I’m currently working on a webcomic and soon video game!
 
